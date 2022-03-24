@@ -130,7 +130,7 @@ De-Criminalization of prostitution
 
 "[Economist Debates: Prostitution—This House Believes That Prostitution Should Be Legal](http://www.economist.com/news/asia/21629472-proper-debate-needed-legalising-sex-work-make-it-legal)." _The Economist_, September 6, 2010.
 
-Levitt, Steven D., and Sudhir Alladi Venkatesh. "An Empirical Analysis Of Street-Level Prostitution." University Of Chicago, 2007. (![This resource may not render correctly in a screen reader.](/images/inacessible.gif)[PDF - 2.0MB](https://www.semanticscholar.org/paper/An-Empirical-Analysis-of-Street-Level-Prostitution-Levitt-Venkatesh/74b377a99ceeae27d29dc50f9cba263e1bf96b52))
+Levitt, Steven D., and Sudhir Alladi Venkatesh. "An Empirical Analysis Of Street-Level Prostitution." University Of Chicago, 2007. ([PDF - 2.0MB](https://www.semanticscholar.org/paper/An-Empirical-Analysis-of-Street-Level-Prostitution-Levitt-Venkatesh/74b377a99ceeae27d29dc50f9cba263e1bf96b52))
 
 "[Prostitution In The United States—The Statistics](http://www.bayswan.org/stats.html)," Prostitutes' Education Network.
 
